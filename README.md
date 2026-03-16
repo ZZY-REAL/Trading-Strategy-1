@@ -1,1 +1,0 @@
-# Trading-Strategy-1
